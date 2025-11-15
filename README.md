@@ -1,4 +1,4 @@
-## Hi, welcome to mi GitHub! 🥳
+## Hi, welcome to my GitHub! 🥳
 Im guzesqdro, I mod things and hack things, you can watch all my progres in my [GitHub </>](https://github.com/guzesqdro), in my [Website 🌐](https://guzesqdro.dev) or in my [Instagram 🅾](https://instagram.com/guzesqdro) ❤️ (Pls follow me)
 
 # Latest Statistics 📊
